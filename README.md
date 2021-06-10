@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bigboyalmondjoy
+- 👀 I’m interested in ... hacking and security
+- 🌱 I’m currently learning ... ethical hacking, network hacking, metasploit, and I.T.
+- 📫 How to reach me ... My discord is bigboyalmondjoy#8495
